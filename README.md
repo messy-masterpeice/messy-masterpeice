@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @messy_masterpiece_
+- 👋 Hi, I’m Ayesha Akhtar
 - 👀 I’m interested in arts and crafts, programming. 
 - 🌱 I’m currently in 3rd sem BS computer engineering. 
 - 💞️ I’m looking to collaborate on ...
